@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @Dchorba The Daily Quordle for May 16 2022 has an incorrectly spelled word in it. The correct spelling for the word boney is BONY. Please check the spelling of words before posting. 
